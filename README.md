@@ -62,7 +62,7 @@ I enjoy turning raw data into meaningful insights that support better decision-m
 
 ## 💡 About Me
 
-✨ Background in Supply Chain + Creative practice + analytical thinking  
+✨ Background in Supply Chain + Creative practice + Analytical thinking  
 📊 Currently developing strong data skills through hands-on projects  
 🌱 Curious, detail-oriented, and always learning  
 
